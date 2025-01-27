@@ -1,2 +1,2 @@
 # Source Code
-made by lonewalkerh pls subscibre :)
+made by lonewalkerh pls subscribe :)
